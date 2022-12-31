@@ -26,6 +26,7 @@
 - Photographing
 
 ## DNI (Do Not Interact) Lists
+
 - Salim (สลิ่ม) or right-wing/conservative
 - Motorcycle haters
 - NSFW Account
