@@ -3,8 +3,9 @@
 ## Get to know me
 - My pronouns are He/Him
 - I'm from Thailand
-- I'm a minor (<18 years old)
+- I'm a minor (-18 years old)
 - I'm a cisgender bisexual guy
+- I'm currently working on Toilet Bound Hanako-kun Gameboy Edition, and my own Linux distro
 
 ## Portfolio
 - Toilet Bound Hanako-Kun Gameboy Edition
