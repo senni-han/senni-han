@@ -9,27 +9,29 @@
 
 ## Portfolio
 - Toilet Bound Hanako-Kun Gameboy Edition
-
+https://hannorsmith.itch.io/tbhk-gb
 - Hannor Smith's Ride
-
+https://youtube.com/@hannor_ride
 - Photographs
 
 ## Interest
 
 - JSHK/TBHK
+- Spy x Family
 - Sky: Children Of the Light
+- Honkai: Star Rail (Asia)
 - Game development with GB studio
 - Motorcycles (espescially KTM and Ducati)
 - Linux, and FLOSS (Free/Libre and Open Source Sofrware)
-- Genshin Impact
 - Motovlogging
-- Stunt riding
 - Photographing
+- Sony
+- Hi-Fi music listening
+- Audio equipments
 
 ## DNI (Do Not Interact) Lists
 
 - Salim (สลิ่ม) or right-wing/conservative
-- Motorcycle haters
 - NSFW Account
 - Proshippers
 - Homophobic, Biphobic, Lesbiphobic
