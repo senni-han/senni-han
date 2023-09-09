@@ -1,4 +1,5 @@
-# Hi there, It's Hannor Smith! 👋
+## Hi there, It's Hannor Smith! 👋
+
 
 ## Get to know me
 - My pronouns are He/Him
@@ -9,9 +10,9 @@
 
 ## Portfolio
 - Toilet Bound Hanako-Kun Gameboy Edition
-https://hannorsmith.itch.io/tbhk-gb
+(https://hannorsmith.itch.io/tbhk-gb)
 - Hannor Smith's Ride
-https://youtube.com/@hannor_ride
+(https://youtube.com/@hannor_ride)
 - Photographs
 
 ## Interest
@@ -38,6 +39,11 @@ https://youtube.com/@hannor_ride
 - Racist, Ableist
 - Tectone, Hero Hei supporters
 
+## My main social media
+
+- Twitter/X (https://x.com/hannorsmith)
+- Instagram (https://instagram.com/hannor_smith)
+- Discord (hannorsmith)
 
 <!--
 **Hannor-Smith/Hannor-Smith** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
