@@ -10,10 +10,8 @@
 - I'm currently working on Toilet Bound Hanako-kun Gameboy Edition, and my own Linux distro
 
 ## Portfolio
-- Toilet Bound Hanako-Kun Gameboy Edition
-(https://hannorsmith.itch.io/tbhk-gb)
-- Hannor Smith's Ride
-(https://youtube.com/@hannor_ride)
+- [Toilet Bound Hanako-Kun Gameboy Edition](https://hannorsmith.itch.io/tbhk-gb)
+- [Hannor Smith's Ride](https://youtube.com/@hannor_ride)
 - Photographs
 
 ## Interest
