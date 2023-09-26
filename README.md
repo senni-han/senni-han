@@ -1,6 +1,6 @@
 ![Wahaha!](/EmuOtori2.webp)
 
-## Hi there, It's Hannor Smith! 👋
+# Hi there, It's Hannor Smith! 👋
 
 ## Get to know me
 - My pronouns are He/Him
