@@ -12,7 +12,7 @@ I'm just a silly bisexual audiophile motorcyclist, nice to meet you!
 - I'm currently working on my own project with my classmates
 
 ## Portfolio
-- [Hannor Smith's Ride](https://youtube.com/@hannor_ride)
+- [Hannor Smith's Ride](https://youtube.com/@han_ride_audio)
 - Photographs
 
 ## Interest
@@ -27,15 +27,14 @@ I'm just a silly bisexual audiophile motorcyclist, nice to meet you!
 
 ## DNI (Do Not Interact) Lists
 
-- Salim (สลิ่ม) or right-wing/conservative
-- NSFW Account
+- Extremist right-wing/conservative
 - Proshippers
 - Homophobic, Biphobic, Lesbiphobic
 - Racist, Ableist
 - Tectone, Hero Hei supporters
-- zionists
+- Zionists
 
 ## My social media
 
-- [Twitter/X](https://x.com/hannor_ride)
+- [Twitter/X](https://x.com/han_ride_audio)
 - [Instagram](https://instagram.com/sup_han.06)
