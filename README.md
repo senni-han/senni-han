@@ -5,7 +5,7 @@
 I'm just a silly bisexual audiophile motorcyclist, nice to meet you!
 
 ## Get to know me
-- My pronouns are he/they
+- My pronouns are he/him
 - I'm from Thailand
 - I'm a minor (-18 years old)
 - I'm a cisgender bisexual guy
