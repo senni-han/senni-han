@@ -36,5 +36,5 @@ I'm just a silly bisexual audiophile motorcyclist, nice to meet you!
 
 ## My social media
 
-- [Twitter/X](https://x.com/han_ride_audio)
-- [Instagram](https://instagram.com/sup_han.06)
+- [Twitter/X](https://x.com/senni_han)
+- [Instagram](https://instagram.com/senni_han)
