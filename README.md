@@ -1,40 +1,32 @@
-![Wahaha!](/EmuOtori2.webp)
+# Hi there, it's Han! 
 
-# Hi there, It's Han! 👋
+![EmuOtoriWahaha](EmuOtori2.webp)
 
-I'm just a silly bisexual audiophile motorcyclist, nice to meet you!
+I'm a linux enthusiast audiophile motorcyclist, nice to meet you!
 
-## Get to know me
+## Some brief information about who I am
+
+- My name is Han, or Han Senni.
 - My pronouns are he/him
 - I'm from Thailand
 - I'm a minor (-18 years old)
 - I'm a cisgender bisexual guy
-- I'm currently working on my own project with my classmates
 
-## Portfolio
-- [Hannor Smith's Ride](https://youtube.com/@han_ride_audio)
-- Photographs
+## Where to find me 
 
-## Interest
+- [My website](https://senni-han.github.io)
+- [Han's Ride & Audio (YouTube Channel)](https://youtube.com/@han_ride_audio)
+- [Github Page](https://github.com/senni-han)
+- [Twitter/X](https://x.com/senni_han)
+- [Instagram](https://instagram.com/senni_han)
+
+## Interests
 
 - PRSK/PJSK (Project Sekai) (Global)
 - Sky: Children Of the Light
 - Motorcycles (espescially KTM)
-- Linux, and FLOSS (Free/Libre and Open Source Sofrware)
+- Linux, and FLOSS (Free/Libre and Open Source Software)
 - Motovlogging
 - Photographing
 - Hi-Fi music listening, and audio equipments
-
-## DNI (Do Not Interact) Lists
-
-- Extremist right-wing/conservative
-- Proshippers
-- Homophobic, Biphobic, Lesbiphobic
-- Racist, Ableist
-- Tectone, Hero Hei supporters
-- Zionists
-
-## My social media
-
-- [Twitter/X](https://x.com/senni_han)
-- [Instagram](https://instagram.com/senni_han)
+- Several Artists (Muse, Ado, Various Vocaloid/UTAU/SynthV producers)
