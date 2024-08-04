@@ -16,7 +16,7 @@ I'm a linux enthusiast audiophile motorcyclist, nice to meet you!
 - [My website](https://senni-han.github.io)
 - [Han's Ride & Audio (YouTube Channel)](https://youtube.com/@han_ride_audio)
 - [Github Page](https://github.com/senni-han)
-- [Twitter/X](https://x.com/senni_han)
+- [Twitter/X](https://x.com/LEXUSKASA)
 - [Instagram](https://instagram.com/senni_han)
 
 ## Interests
