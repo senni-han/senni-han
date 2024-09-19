@@ -13,11 +13,13 @@ I'm a linux enthusiast audiophile motorcyclist, nice to meet you!
 
 ## Where to find me 
 
-- [My website](https://senni-han.github.io)
+- [Personal website](https://senni-han.github.io)
+- [Email me](mailto:shuemwang.han@gmail.com)
+- [Shutterstock](https://shutterstock.com/g/senni_han)
 - [Han's Ride & Audio (YouTube Channel)](https://youtube.com/@han_ride_audio)
-- [Github Page](https://github.com/senni-han)
-- [Twitter/X](https://x.com/LEXUSKASA)
-- [Instagram](https://instagram.com/senni_han)
+- [Instagram (Personal)](https://instagram.com/senni_han)
+- [Instagram (YouTube Channel)](https://instagram.com/han_ride_audio)
+- [Instagram (Photography)](https://instagram.com/han.senni_photos)
 
 ## Interests
 
